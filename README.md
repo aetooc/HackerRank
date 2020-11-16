@@ -4,6 +4,6 @@
 
 ---
 
-**My HackerRank Profile :  [*Muhammad Awais*](https://www.hackerrank.com/muhammadawais261)**
+**My HackerRank Profile :  [*Muhammad Awais*](https://www.hackerrank.com/aetooc)**
 
 
